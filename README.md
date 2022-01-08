@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mohammadtouk
-- 👀 I’m interested in crptocurrency
+- 👀 I’m interested in cryptocurrency
 - 🌱 I’m currently learning accounting
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
